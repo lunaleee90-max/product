@@ -125,7 +125,6 @@ iWeaver isn’t just another productivity tool—it’s a smart, personal worksp
 
   ![](Aspose.Words.dfbcf164-2132-4502-b936-5a11e4fd3e91.007.jpeg)
 
-  **点击图片可查看完整电子表格**
 
   **Summary:**
 
